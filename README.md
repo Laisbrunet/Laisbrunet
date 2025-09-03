@@ -37,7 +37,7 @@ E é exatamente assim que me sinto ao aprender algo novo. 🌱
 
 ---
 
-## 🪄 Soft Skills  
+## 🤝🏻 Soft Skills  
 
 <div align="center">
 
